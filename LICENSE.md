@@ -1,4 +1,4 @@
-# 
+# Enhance Cubase for PC | Cubase for Windows with rare Cubase for PC | Cubase for Windows Transition | MIDI-editing + effects-chains, the #1 transition. Includes MIDI-editing and
 
 
 
